@@ -15,7 +15,7 @@ I'm a 3D Artist 🎨, Texture Specialist 🖌️, and Web Developer 💻 who is 
 
 ## 🔗 Connect with Me
 
-- Follow me on Twitter: [Twitter](https://x.com/heroivaan/)
+- Follow me on 𝕏: [𝕏](https://x.com/heroivaan/)
 
 ## 📣 Support Ukraine
 
