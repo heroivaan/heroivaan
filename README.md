@@ -2,4 +2,4 @@
 
 
 ## 🔗 Connect with Me
-- Follow me on Twitter: [𝕏](https://x.com/heroivaan/)
+- Follow me on [Twitter](https://x.com/heroivaan/)
